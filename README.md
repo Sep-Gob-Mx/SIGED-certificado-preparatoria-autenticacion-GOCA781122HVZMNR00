@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOCA781122HVZMNR00
+GOCA781122HVZMNR00
